@@ -1,2 +1,2 @@
 # spirit
-contribute to myself
+contribute to the platform with my best

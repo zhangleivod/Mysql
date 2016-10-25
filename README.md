@@ -1,0 +1,2 @@
+# spirit
+contribute to myself
